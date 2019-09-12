@@ -1,0 +1,6 @@
+- consent to recording
+- license for recording
+- license for any provided bio
+- license for any provided headshot
+- license right of personality for purpose of promoting podcast episode
+- option for government work not subject to copyright?
